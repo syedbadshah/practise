@@ -5,3 +5,4 @@ and know i am editing in this file guys
 bus kar do bahi
 acha ok bus karta hu
 chal putar bhag ja
+ok mey bhagta hu khush
